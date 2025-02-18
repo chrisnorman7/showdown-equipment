@@ -18,6 +18,8 @@ The Coventry Comets BBS page can be found [here](https://britishblindsport.org.u
 - [Byte blue left hand XS](https://www.decathlon.co.uk/p/mp/byte/byte-club-left-hand-hockey-glove-blue/_/R-p-6566cd38-247d-4344-9b00-1ca004dd7b0e?mc=6566cd38-247d-4344-9b00-1ca004dd7b0e_c5)
 - [Byte red right hand](https://www.decathlon.co.uk/p/mp/byte/byte-club-hockey-glove-red-right-hand/_/R-p-5d0ff724-1d9d-4ef3-ae6f-31e63a7c67df?mc=5d0ff724-1d9d-4ef3-ae6f-31e63a7c67df_c14)
 - [Byte red left hand XS](https://www.decathlon.co.uk/p/mp/byte/byte-club-left-hand-hockey-glove-red/_/R-p-bca449f1-fc35-4d03-af2d-aaf5b291d3b2?mc=bca449f1-fc35-4d03-af2d-aaf5b291d3b2_c14)
+- [Grays G500 GEL](https://www.newitts.com/grays-g500-gel-hockey-gloves)
+- [Grays International Pro Hockey Glove](mailto:sales@newitts.com)
 
 ### Sweatbands
 
